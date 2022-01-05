@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @lingga888i
 - 👀 I’m interested in cryptocurrency
 - 🌱 I’m currently learning teading
-- 💞️ I’m looking to collaborate on ..
+- 💞️ I’m looking to collaborate on partner
 - 📫 How to reach me : folow my instagram @linggarefri
 - 💰 My ETH Address 0x64D2745F81f34b4B5A0d170FEBdD279c67c0f07f
 
